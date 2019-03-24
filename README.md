@@ -1,2 +1,1 @@
-Find interesting people to play interesting things,come join to us
-                      let's play!
+Find interesting people to play interesting things,welcome to join,let's play!
