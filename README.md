@@ -1,1 +1,1 @@
-欢迎您的加入！
+Find interesting people to play interesting things,come join let's play!
